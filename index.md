@@ -1,37 +1,20 @@
-## Welcome to GitHub Pages
+## GET FREE BTC WALLETS 
 
-You can use the [editor on GitHub](https://github.com/juanna21/free/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+##  GET FREE BTC WALLETS BALANCE FROM 0.9 BTC TO 10000 BTC.
+               btcstlwall@secmail.pro
 
-### Markdown
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### Dowload free Wallet.dat Bitcoin Core 10.08 BTC 
+Download free Wallet.dat Bitcoin Core 1.05 BTC
+Download free Wallet.dat Bitcoin Core 4.3 BTC 
+Dowload free Wallet.dat Bitcoin Core 11,5 BTC 
+Download free Wallet.dat Bitcoin Core 31.4 BTC 
+Download free Wallet.dat Bitcoin core 69370 BTC
+Dowload free Wallet.dat Bitcoin core 78 BTC
+Download free Wallet.dat Bitcoin Core 0.0178 BTC
+Download free Wallet.dat Bitcoin Core 0.03 BTC
+Dowload free Wallet.dat Bitcoin Core 1.08 BTC 
 
-```markdown
-Syntax highlighted code block
+And MORE .... CONTACT DETAILS  btcstlwall@secmail.pro
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/juanna21/free/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
